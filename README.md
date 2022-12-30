@@ -1,2 +1,2 @@
-# B-l-m-Sonu-al-mas-
+# Lorem Sitesi-
 Ödev 3'ten önceki ödev :D
